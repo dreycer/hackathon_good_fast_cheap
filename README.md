@@ -1,1 +1,0 @@
-# hackathon_good_fast_cheap
